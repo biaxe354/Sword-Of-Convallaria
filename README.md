@@ -240,4 +240,4 @@ Sword of Convallaria is the complete free version with all features and updates 
 Ready to embark on an epic adventure? Download Sword of Convallaria today and experience the thrill of tactical RPG gameplay!
 
 ---
-**Last updated:** 2026-11-09 15:36:04 UTC
+**Last updated:** 2026-11-09 23:59:56 UTC
